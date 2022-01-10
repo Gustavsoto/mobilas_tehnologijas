@@ -1,1 +1,0 @@
-# mobilas_tehnologijas
